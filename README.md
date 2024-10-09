@@ -6,7 +6,7 @@
 <div align="center">
 
 
-  𓍢 🍽️  **i**nterests ...<br> **dungeon meshi**, the stanley parable, nuclear/radiation related things, fnaf, vocaloid, collecting antiques, writing stories, *avatar*, **maretu**, **kikuo** ° ᡣ𐭩.
+  𓍢 🍽️  **i**nterests ...<br> **dungeon meshi**, the stanley parable, nuclear/radiation related things, fnaf, vocaloid, collecting antiques, writing stories, *avatar*, **maretu**, **kikuo**, obscure horror games (ask please ♡), bioshock, Ib, there is much more. just ask⠀ ᡣ𐭩.
 
 ♡⠀₊⠀ if you have to ask if something is on my dni, then it's best to assume it is.
 </div>
